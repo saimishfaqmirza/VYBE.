@@ -1,1 +1,1 @@
-# VYBE.
+# VYBE
